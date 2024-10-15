@@ -1,4 +1,4 @@
-## Hi there 👋
+## I am C0w and PlayingCow61105, please refer to me as one or the other
 
 <!--
 **PlayingCow61105/PlayingCow61105** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
