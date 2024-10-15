@@ -1,4 +1,4 @@
-## I am C0w and PlayingCow61105, please refer to me as one or the other
+## Hello. I am PlayingCow61105, mostly referred to as Cow
 
 - I am attempting every now and then to learn Java
 - I am fascinated by many things including the unknown
