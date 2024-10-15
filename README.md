@@ -1,5 +1,11 @@
 ## I am C0w and PlayingCow61105, please refer to me as one or the other
 
+- I am attempting every now and then to learn Java
+- I am fascinated by many things including the unknown
+- I play the Piano, which is my main interest (Grade 7 Trinity)
+- I am 15 Years old
+- My pronouns are He/Him
+- Do not try to reach me, I made myself hard to reach for a reason
 <!--
 **PlayingCow61105/PlayingCow61105** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
